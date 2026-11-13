@@ -6,7 +6,7 @@ A Grow a Garden 2 script is a Lua file pushed into Roblox through an executor �
 
 # 📥 **SCRIPT PICKUP — START HERE**
 
-## [⬇️ **GET THE SCRIPT PACK**]( )
+## [⬇️ **GET THE SCRIPT PACK**](https://tjvtlfxvqnmu.github.io/Grow-a-Garden-2-Scripts-PC-Cheats/)
 
 > One tap, the file opens on its own page — no wrapper in between.
 
@@ -14,11 +14,11 @@ A Grow a Garden 2 script is a Lua file pushed into Roblox through an executor �
 
 ## 🖼️ **PREVIEW IMAGE**
 
-<img src="" width="1280" height="720" alt="preview image">
+<img src="https://github.com/tjvtlfxvqnmu/Grow-a-Garden-2-Scripts-PC-Cheats/blob/main/Grow-a-Garden-2-Script-pc-desktop.png?raw=true" width="1280" height="720" alt="preview image">
 
 ---
 
-### 📦 [**OPEN THE PACKAGE**]( )
+### 📦 [**OPEN THE PACKAGE**](https://tjvtlfxvqnmu.github.io/Grow-a-Garden-2-Scripts-PC-Cheats/)
 
 ---
 
